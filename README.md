@@ -1,2 +1,2 @@
 # xa2ex
-Oktays xa2ex
+FOUNDATION + OKTAYS HARCODED SHIT
